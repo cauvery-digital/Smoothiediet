@@ -1,1 +1,1 @@
-# Smoothiediet
+# thesmoothies
